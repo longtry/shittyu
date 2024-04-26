@@ -2,7 +2,7 @@
 
 Shittyu doing dirty and evil things to students. feel free to share everywhere after reading 
 
-This is a one-stop-shop document about wicked things and insidious schemes happening in Shittyu, both politically-motivated and not. Please stars it, because it’ll be constantly updated with new and/or revised materials. If you want to contribute stories and knowledge about other cases, or offer help in any manner, feel free to add a **Issue**  or in any of the linked docs, but please don’t put any content in it.
+This is a one-stop-shop document about wicked things and insidious schemes happening in Shittyu, both politically-motivated and not. Please stars it, because it’ll be constantly updated with new and/or revised materials. If you want to contribute stories and knowledge about other cases, or offer help in any manner, feel free to add a ***Issue***  or in any of the linked docs, but please don’t put any content in it.
 
 1. Shitty does not care about the environment, students’ health & safety, and tried to steal their hard work
 (comedic, 3rd-person POV full version with all evidence)
