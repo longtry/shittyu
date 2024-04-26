@@ -1,6 +1,6 @@
 # Shittyu doing dirty and evil things to students. Feel free to share everywhere after reading.
 
-This is a one-stop-shop document about wicked things and insidious schemes happening in Shittyu, both politically-motivated and not. Please stars it, because it’ll be constantly updated with new and/or revised materials. If you want to contribute stories and knowledge about other cases, or offer help in any manner, feel free to add a ***Issue*** or in any of the linked docs.
+This is a one-stop-shop document about wicked things and insidious schemes happening in Shittyu, both politically-motivated and not. Please stars it, because it’ll be constantly updated with new and/or revised materials. If you want to contribute stories and knowledge about other cases, or offer help in any manner, feel free to add an ***Issue*** or join the communities on [WhatsApp](https://chat.whatsapp.com/Ic3p6JSOQo8Efs12O034PV) and Telegram.
 
 1. [shittyu does not care about the environment, students’ health & safety, and tried to steal their hard work](https://www.reddit.com/r/HongKong/comments/1ag090p/i_fight_my_universitys_dark_truths_with_music_but/)
 
