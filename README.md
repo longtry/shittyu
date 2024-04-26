@@ -1,6 +1,4 @@
-# Shittyu 
-
-Shittyu doing dirty and evil things to students. feel free to share everywhere after reading 
+# Shittyu doing dirty and evil things to students. Feel free to share everywhere after reading.
 
 This is a one-stop-shop document about wicked things and insidious schemes happening in Shittyu, both politically-motivated and not. Please stars it, because it’ll be constantly updated with new and/or revised materials. If you want to contribute stories and knowledge about other cases, or offer help in any manner, feel free to add a ***Issue*** or in any of the linked docs.
 
